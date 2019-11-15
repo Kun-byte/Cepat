@@ -1,0 +1,2 @@
+# Cepat
+Belajar, menghasilkan, sukses
